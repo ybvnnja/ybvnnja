@@ -1,0 +1,3 @@
+- 👋 i´m from Chile and i speak Spanish & English 🦖
+- 🌱 i’m currently learning coding and programming :)
+- 📫 discord - beeeenja#7015
